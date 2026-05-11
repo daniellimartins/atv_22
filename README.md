@@ -1,1 +1,2 @@
-atividade em dupla Danielli e Ana Julia
+atividade dentro do tinkercad em dupla
+Danielli e Ana Julia
