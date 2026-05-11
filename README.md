@@ -1,1 +1,1 @@
-atividade em dulpa Danielli e Ana Julia
+atividade em dupla Danielli e Ana Julia
